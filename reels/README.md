@@ -6,6 +6,24 @@
 
 ---
 
+### 10월 9일 16:50 · 여성기업확인서, 대표만 여성이면 안 나와요
+
+[⬇️ 이미지 받기](https://raw.githubusercontent.com/koongkwanp-source/koan-cards/main/reels/20261009-074824-cf4ff54c/summary.jpg)
+
+```
+대표가 여성이어도 여성기업확인서가 안 나올 수 있어요.
+
+법인은 여성 대표가 최대출자자여야 해요.
+신청은 공공구매종합정보망에서 하고 유효기간은 3년이에요.
+법인은 주주명부와 주식 등 지분관계도를 꼭 챙기세요.
+
+자세한 내용은 프로필 링크 블로그에서 확인하세요.
+
+#여성기업확인서 #여성기업 #공공구매종합정보망 #공공조달 #여성창업
+```
+
+---
+
 ### 10월 9일 14:35 · 옥정중앙역 디에트르Ⅱ, 당첨돼도 무주택? 세금은 달라요
 
 [⬇️ 이미지 받기](https://raw.githubusercontent.com/koongkwanp-source/koan-cards/main/reels/20261009-053317-e39aa7d1/summary.jpg)
