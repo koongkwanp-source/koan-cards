@@ -6,9 +6,9 @@
 
 ---
 
-### 10월 13일 19:02 · 인턴 말고 월 300만원, SK 아이젠 자격부터 보세요
+### 10월 13일 20:27 · 인턴 말고 월 300만원, SK 아이젠 자격부터 보세요
 
-[⬇️ 영상 받기](https://raw.githubusercontent.com/koongkwanp-source/koan-cards/main/reels/20261013-100249-8eaf344e/reel.mp4)
+[⬇️ 영상 받기](https://raw.githubusercontent.com/koongkwanp-source/koan-cards/main/reels/20261013-112740-8eaf344e/reel.mp4)
 
 ```
 인턴 지원서만 쓰던 26살 서연 씨(가정),
