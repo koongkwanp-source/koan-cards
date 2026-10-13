@@ -6,9 +6,9 @@
 
 ---
 
-### 10월 13일 14:43 · 청약 무주택기간 잘못 세면, 당첨돼도 취소돼요
+### 10월 13일 15:28 · 청약 무주택기간 잘못 세면, 당첨돼도 취소돼요
 
-[⬇️ 영상 받기](https://raw.githubusercontent.com/koongkwanp-source/koan-cards/main/reels/20261013-054310-cf6f3cdc/reel.mp4)
+[⬇️ 영상 받기](https://raw.githubusercontent.com/koongkwanp-source/koan-cards/main/reels/20261013-062808-cf6f3cdc/reel.mp4)
 
 ```
 청약 넣기 전인 무주택자라면,
